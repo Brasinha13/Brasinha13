@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Brasinha13.
+- 👋 Hi, I’m Igor (FireBoy).
 - 👀 I’m interested in games I guess.
 - 🌱 I’m currently learning coding.
 - 💞️ I’m looking to collaborate on nothing, the school simply makes me do it.
